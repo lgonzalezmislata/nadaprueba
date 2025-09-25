@@ -1,5 +1,8 @@
 # nadaprueba
-Pruebas e Git. No tiene nada de nada.
-Hola mundo
+Pruebas de Git. No tiene nada de nada.
+AMONGUS AMONGUS AMONGUS
 
+AAAAAAAAA
+
+-Super Kirby
 `Danielito`
