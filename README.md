@@ -2,19 +2,19 @@
 
 Pues quien nada no se ahoga
 Anuel UUAAAA Concierto Anuel 25 NOviembre(Jovani JVVVVVVVV)
-`Danielito - 2025`
+Danielito - 2025
 Pruebas, de Git. No tiene nada de nada.
 AMONGUS, AMONGUS, AMONGUS
-
 AAAAAAAAA
-
 -Super Kirby
+<<<<<<< HEAD
 `Danielito`
               ／＞　 フ
             | 　_　_ |
           ／` ミ＿xノ
         /　　 　　 |
        /　 ヽ　　 ﾉ
+Danielito
 Ishimi
 -Soy ivan
 - Y tu callao
@@ -25,11 +25,8 @@ Adrian tonto
 Enrique guapo
 -Brrrrr Bebesita
 -Adrian mini pekka
-
 Adrian mini pekka
-
 Alejandro feo
-
 =-------------------------------------==========
 =-------------------------------------==========
 =----------------------------------------=======
@@ -69,3 +66,8 @@ Alejandro feo
 --:::::.....    .:-+*##%%%%%%##+----------------
 --:::::.....    .:-+**##%%%%%%#*----------------
 --:::::......   .:-++*###%%%%%%#+---------------
+-Soy ivan
+- Y tu callao
+-OOOOOOH DA WAS EPIC
+ALEJANDRO MONSALVE
+holaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
