@@ -10,6 +10,11 @@ AAAAAAAAA
 
 -Super Kirby
 `Danielito`
+              ／＞　 フ
+            | 　_　_ |
+          ／` ミ＿xノ
+        /　　 　　 |
+       /　 ヽ　　 ﾉ
 Ishimi
 -Soy ivan
 - Y tu callao
