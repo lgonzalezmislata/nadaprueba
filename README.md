@@ -3,7 +3,7 @@
 Pues quien nada no se ahoga
 
 `Danielito - 2025`
-Pruebas de Git. No tiene nada de nada.
+Pruebas, de Git. No tiene nada de nada.
 AMONGUS AMONGUS AMONGUS
 
 AAAAAAAAA
