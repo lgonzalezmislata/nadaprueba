@@ -1,13 +1,16 @@
 # nadaprueba
 
 Pues quien nada no se ahoga
+Anuel UUAAAA Concierto Anuel 25 NOviembre
+Danielito - 2025
 Anuel UUAAAA Concierto Anuel 25 NOviembre(Jovani JVVVVVVVV)
 Danielito - 2025
+`Danielito - 2025`
 Pruebas, de Git. No tiene nada de nada.
 AMONGUS, AMONGUS, AMONGUS
 AAAAAAAAA
 -Super Kirby
-<<<<<<< HEAD
+
 `Danielito`
               ／＞　 フ
             | 　_　_ |
