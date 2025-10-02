@@ -10,10 +10,12 @@ AAAAAAAAA
 
 -Super Kirby
 `Danielito`
-
 Ishimi
 -Soy ivan
 - Y tu callao
 -OOOOOOH DA WAS EPIC
 -Gurt
 -Yo
+Adrian tonto
+Enrique guapo
+
